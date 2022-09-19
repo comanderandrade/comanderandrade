@@ -14,7 +14,7 @@
 
 
 
-Curriculum: [(Soon)](https://drive.google.com/file/d/1XHifLrg88lqF6kkByW-jGrPtSX-INWYo/view?usp=sharing)
+[Curriculum](https://drive.google.com/file/d/1XHifLrg88lqF6kkByW-jGrPtSX-INWYo/view?usp=sharing)
 
 
 <h2>My Skills</h2>
